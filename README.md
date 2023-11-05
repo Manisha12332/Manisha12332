@@ -1,0 +1,5 @@
+- 👋 Hi, I,m Manisha Kumari 
+- 👀 I’m interested in software development
+- 🌱 I’m currently learning my Masters in computer Application
+- 💞️ I’m looking to collaborate on .
+- 📫 My contact no-6206494630, E-mail- manishakumari7549maa@gmail.com
